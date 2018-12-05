@@ -12,7 +12,7 @@
 
 순대
 
-제육볶
+제육볶음 
 
 ## 싫어하는 음식은?
 
@@ -20,7 +20,7 @@
 
 오징어볶
 
-콘
+콘칩 
 
 Yes, after a few months we finally found the answer. Sadly, Mike is on vacations right now so I'm afraid we are not able to provide the answer at this point.
 
